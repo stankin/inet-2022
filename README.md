@@ -24,4 +24,4 @@
 
 ✅ [**Группа телеграм**](https://t.me/+DIPcBxsD2v1jOWU6)
 
-👣 [Подключиться к команде Microsoft Teams]()
+✅ [Подключиться к команде Microsoft Teams](https://teams.microsoft.com/l/team/19%3aJi8BpSB0uYd5EtDWxobEz99wOgtU5LdPIJW7gvuFuyE1%40thread.tacv2/conversations?groupId=2f9fef8b-1ae3-43fa-a287-5c9f28f3b47a&tenantId=fc6821dc-cc93-4bf0-bdd7-a278d6dba3ea)
