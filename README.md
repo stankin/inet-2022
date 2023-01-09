@@ -26,4 +26,4 @@
 
 ✅ [**Группа телеграм**](https://t.me/+DIPcBxsD2v1jOWU6)
 
-✅ [Подключиться к команде Microsoft Teams](https://teams.microsoft.com/l/team/19%3aJi8BpSB0uYd5EtDWxobEz99wOgtU5LdPIJW7gvuFuyE1%40thread.tacv2/conversations?groupId=2f9fef8b-1ae3-43fa-a287-5c9f28f3b47a&tenantId=fc6821dc-cc93-4bf0-bdd7-a278d6dba3ea)
+✅ [Подключиться к собранию Microsoft Teams](https://teams.microsoft.com/l/meetup-join/19:Ji8BpSB0uYd5EtDWxobEz99wOgtU5LdPIJW7gvuFuyE1@thread.tacv2/1673275172370?context=%7B%22Tid%22:%22fc6821dc-cc93-4bf0-bdd7-a278d6dba3ea%22,%22Oid%22:%22e51c519d-5abb-4479-a6a0-cef93afe3115%22%7D)
